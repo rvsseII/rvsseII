@@ -1,17 +1,9 @@
-‎ 
-‎ 
-‎ 
-‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎★ ⋆ ★
 
-
-‎  ‎ ‎‎  ‎‎‎   ‎‎  ‎ ‎ ‎‎ something happens –– and i'm head over heels !
-<img src="https://i.postimg.cc/yNYMt41J/9aaa73fceda436c133b35a2daac2c1a5.gif">
-‎ ‎ ➠‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎‎ i never find out till i'm head over heels ‎ ‎ ‎ᯓ
-
-‎ 
-‎ 𝇕‎ ‎‎ ‎ ‎  🏎️‎ ‎‎ ‎ ‎‎  🏎️‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ 🏎️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ 🏎️‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎   🏎️
-▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
+<img src="https://i.postimg.cc/brVQ4BVq/giphy-gr63.gif">
+‎ ‎ ➠‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎‎ #gr1nd‎ ‎ ‎‎ ，‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ yabba dabba doo! ‎ ‎ ‎
+‎‎ ‎ ‎ ‎ 
+‎ ‎ ‎ ‎ 
+‎ ‎ ‎ ‎ 
 ‎ 
 ‎ 
 
@@ -22,4 +14,4 @@
 
 ‎ 
 ‎ 
-·· best viewed on mobile.
+·· ♡𝒿  --  k ，a ，l ，c ，c ，s ，a ，i.
