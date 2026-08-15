@@ -19,4 +19,6 @@
 ‎ ═════════════════════════
 ‎ 
 ‎ 
-[@pt-fashion](https://github.com/pt-fashion)'s patrick jane .
+[@pt-fashion](https://github.com/pt-fashion)'s patrick jane , [@FOLKTOWN](https://github.com/FOLKTOWN)'s george russell .
+
+
