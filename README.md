@@ -1,7 +1,7 @@
 
 <img src="https://i.postimg.cc/NF1GFHLt/jisbongif01.gif">
 ‎ ‎ ➠‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎‎ #gr1nd‎ ‎ ‎‎ ，‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  hard not to fall for you, 
-‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎   ‎‎‎‎i gave you all my heart . ‎ ‎ ‎
+‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎i gave you all my heart . ‎ ‎ ‎
 ‎‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ 
