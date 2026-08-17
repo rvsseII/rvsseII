@@ -20,6 +20,6 @@
 ‎ ═════════════════════════
 ‎ 
 ‎ 
-[@pt-fashion](https://github.com/pt-fashion)'s patrick jane , [@FOLKTOWN](https://github.com/FOLKTOWN)'s george russell .
+[@pt-fashion](https://github.com/pt-fashion)'s patrick jane , [@FOLKTOWN](https://github.com/FOLKTOWN) + [@pt-hall-of-media](https://github.com/pt-hall-of-media)'s george russell .
 
 
