@@ -13,7 +13,7 @@
 ‎ ‎ ‎ 
 ‎ ‎ ‎ 
 ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎++ ‎ ‎ ‎ [my lisbon](https://github.com/kyohwan) ‎‎ ‎(˶◜ᴗ◝˶)
+‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎++ ‎ ‎ ‎ [my teresa lisbon](https://github.com/kyohwan) ‎‎ ‎(˶◜ᴗ◝˶)
 
 
 
