@@ -42,3 +42,6 @@ hi [max](https://github.com/verstaqqen) and [kimi](https://github.com/ibwuprofen
 <br></br>
 
 [@pt-fashion](https://github.com/pt-fashion)'s patrick jane , [@FOLKTOWN](https://github.com/FOLKTOWN) + [@pt-hall-of-media](https://github.com/pt-hall-of-media)'s george russell .
+
+<br></br>
+all art cr 2 **@dudosincka** on twt.
