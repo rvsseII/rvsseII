@@ -23,7 +23,7 @@
 
 [<img src="https://i.postimg.cc/J01Fx6qP/Carrdgraohic.png" width="90" />](https://hesirksome.carrd.co/#)
 [<img src="https://i.postimg.cc/05fFjvkW/Atagraohic.png" width="90" />](https://absolutelybuzzing.atabook.org/)
-[<img src="https://i.postimg.cc/hPtw7YhP/prnsccc.png" width="100" />](https://pronouns.cc/@russellskiwis)
+[<img src="https://i.postimg.cc/hPtw7YhP/prnsccc.png" width="90" />](https://pronouns.cc/@russellskiwis)
 
 
 <br></br>
